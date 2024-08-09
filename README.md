@@ -1,0 +1,1 @@
+- 👋 oi, meu nome é adryelle, eu estou aprendendo esse programa,eu estudo na escola exército brasileiromoro na zona leste em São Paulo 
